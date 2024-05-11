@@ -1,1 +1,1 @@
-# Stu-r-dy
+# get Stu-r-dy
